@@ -2,8 +2,6 @@
 
 https://www.explorecosmo.com/
 
-https://kilkaari.shop/
-
 https://www.rockandanchor.in/
 
 https://kingsmakhana.com/
